@@ -1,2 +1,2 @@
-# the_star_he_made_presskit
+# the-star-he-made-presskit
 The Star He Made 2026 Press Kit
